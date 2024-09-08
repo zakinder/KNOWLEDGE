@@ -1,2 +1,5 @@
 # KNOWLEDGE
-ALLAH 99 NAMES : Al-Haqq : Means Truth
+
+Allah 99 Names : Al-Haqq : Means Truth
+
+From Knowledge : Means Al-Haqq : Means Geniun : 2XGOOD : ANY SIN IS ILLUSION AND INTRUTION TO MAKE CONFUSE (CONFUSENISIM)
