@@ -1,4 +1,4 @@
-# KNOWLEDGE (Foam Bubble Of Nothing Squeeze and Fill It Up)
+# KNOWLEDGE (Foam Bubble Of Nothing(RGB BLACK|WHITE) Squeeze and Fill It Up(WhoWantGray(CleverMove)Food)) 
 
 Allah 99 Names : Al-Haqq : Means Truth
 
