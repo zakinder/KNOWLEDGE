@@ -2,7 +2,7 @@
 
 Allah 99 Names : Al-Haqq : Means Truth
 
-From (TheHuman)Knowledge : Means Al-Haqq : Means Geniun : 2XGOOD : ANY SIN IS ILLUSION AND INTRUTION TO MAKE CONFUSE (CONFUSENISIM)
+From (TheHuman)Knowledge : Means Al-Haqq : Means Geniun : 2XGOOD : ANY SIN IS ILLUSION AND INTRUTION TO MAKE CONFUSE (CONFUSENISIM via PeaCock(Gabriel|Jabril|JalebiViaMirrorHollowTruth))
 
 Al-Alim : The Knowledgeable; The One nothing is absent from His knowledge 
 
